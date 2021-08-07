@@ -1,2 +1,2 @@
 # osdcloud
-# Fuck off
+# Fuck off. Nope! Not fucking off!
